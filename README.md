@@ -1,3 +1,3 @@
-# stan lee
+# lan stee
 
-![Image of Yaktocat](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7b/Stan_Lee_by_Gage_Skidmore_3.jpg/800px-Stan_Lee_by_Gage_Skidmore_3.jpg)
+![Image of Yaktocat](https://www.indiewire.com/wp-content/uploads/2014/11/key-and-peele-stan-lee.58.3620PM202.jpg)
